@@ -1,4 +1,4 @@
-## Olá! Eu sou a Luanda Marcela.
+## Olá! Eu sou a Luanda Marcela
 - Estudo Sistema de Informações na UFMG
 - Sou técnica adiministrativa
   ##
